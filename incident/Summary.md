@@ -1,7 +1,7 @@
 Complicated Circumstances.
 -------
 I made this post because explaining everything at once would be so confusing and complicated, take your time reading it.
- I try my best to maintain a neutral amd formal tone here.
+ I try my best to maintain a neutral and formal tone here.
  
 My Mac-book was running through a few issues. And that, I **believed** performance was bad, resembling the general losses when playing with me.
 
