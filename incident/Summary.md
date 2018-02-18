@@ -1,10 +1,11 @@
 Complicated Circumstances.
 -------
 I made this post because explaining everything at once would be so confusing and complicated, take your time reading it.
-
+ I try my best to maintain a neutral amd formal tone here.
+ 
 My Mac-book was running through a few issues. And that, I **believed** performance was bad, resembling the general losses when playing with me.
 
-Due to the team failing alongside during the operations, the squad decided to 'have fun' and play around. I try my best to maintain a neutral amd formal tone here.
+Due to the team failing alongside during the operations, the squad decided to 'have fun' and play around.
 
 I was quite moved about the approach to the situation, so I added a comment stating that the actions would be unreasonable and inappropriate. I used the words ‘Selfish’ and “You don’t care” during the situation and been dismissed by responses mentioning that I was not in the Voice call, implying that I didn’t grasp correctly on the perspective of them inside the voice call.
 
